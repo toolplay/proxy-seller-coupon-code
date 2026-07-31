@@ -14,7 +14,7 @@ Proxy Seller 运营已超过十年，声称拥有超过2000万个住宅IP的代�
 
 ## Proxy Seller 官网地址
 
-Proxy Seller 官网: [https://proxy-seller.com/](https://proxy-seller.com/)
+Proxy Seller 官网: [https://proxy-seller.com/](https://proxy-seller.com/?partner=61QBY15N8KB138)
 
 ## Proxy Seller 优惠码
 
@@ -30,7 +30,7 @@ Proxy Seller 官网: [https://proxy-seller.com/](https://proxy-seller.com/)
 
 > **使用方式**：注册账号后进入结算页面，在"Promo Code"输入框中填入上述任意一个代码，系统会自动计算折扣后金额。Proxy Seller 通常不支持多个优惠码叠加使用，建议逐个尝试后选择折扣力度最大的一个。
 
-[点击查看 Proxy Seller 官网最新优惠活动](https://proxy-seller.com/)
+[点击查看 Proxy Seller 官网最新优惠活动](https://proxy-seller.com/?partner=61QBY15N8KB138)
 
 ## Proxy Seller 套餐与定价
 
