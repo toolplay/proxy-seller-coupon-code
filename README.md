@@ -1,6 +1,7 @@
 # Proxy Seller优惠码和2026年最新Proxy Seller高性价比代理服务活动整理
 
 代理服务这个赛道，价格战一直没停过。今天要聊的 Proxy Seller，算是这个行业里的"老玩家"了——从最早卖服务器 IP 起家，如今已经发展成覆盖住宅、移动、ISP、数据中心全品类的综合代理供应商。今天把它的优惠码、套餐配置一次性给你整理清楚。
+<img width="3773" height="1865" alt="image" src="img/proxy seller homepage.png">
 
 ## Proxy Seller 介绍
 
